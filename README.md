@@ -1,1 +1,10 @@
-# nazi-holland
+----------------
+| nazi-holland |
+----------------
+
+
+# neues volk
+https://en.wikipedia.org/wiki/Neues_Volk
+
+# bontkraag
+https://nl.wikipedia.org/wiki/Bontkraag
